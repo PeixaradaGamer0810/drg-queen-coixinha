@@ -1,1 +1,1 @@
-drag queen
+drag queen, coxinhas e gersoon.
